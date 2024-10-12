@@ -1,1 +1,4 @@
-- im very educated on how to multiply 7+3 by 98.43 divided by 78 minus 12
+# hi!
+you found my page i guess so welcome
+i usually just put random stuff on here
+__no clue__ is my motto
